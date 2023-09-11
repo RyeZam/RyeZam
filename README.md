@@ -1,2 +1,2 @@
 <RyeZam>
-  manifesting a successful project completion!
+  manifesting a job offer!
