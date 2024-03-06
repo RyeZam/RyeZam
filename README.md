@@ -1,2 +1,2 @@
 <RyeZam>
-  manifesting a job offer!
+  Read and Learn
